@@ -1,0 +1,6 @@
+Qadirli bolajonlar, bilasiz, odam bir kunda bir necha bor ovqatlanadi. Uning ham o'ziga yarasha tartib qoidasi bor. Ularni yaxshilab bilib olishimiz kerak.
+Ovqatlanishdan oldin qo'llarni yxshilab yuvish lozim. Qo'lingiz ko'rinishidan toza bo'lsa ham, albatt, yuvasiz.Ba'zi bolalar Menhech narsa ushlaganim yo'q qo'lim toza deb qo' yuvgani erinishadi. bu-noto'g'ri. Qo'lingiz kir bo'lmasa ham, biron narsani ushlamagan bo'lsangizs ham,ovqatdan oldin albatta qo'lingizni albatta yuvishingiz kerak.Shuningdek, ovqatdan keyin ham qo'llar yuvilai. Chunki ovqatning yuqi yoki yog'i tekkan bo'ladi. Artgan bilanoxirgacha ketmasligi mumkin.
+Dasturhon boshiga o'tirganda qulay o'tirib oling. Yonboshlab, yoki qo'lga suyyanib o'tirilmaydi.
+Do'ktirlarning tafsiya qilishicha, ovqatlanishdan oldin suv ichish va meva yeyish sog'lik uchun foydalidir.ovqatlanayotganda choy ichmangan ma'qul ekan. Sog'lig'ingiz uchun bu ko'rsatmaga ham, albatta, rioya qiling. 
+Ovqatni ko'pchilik bo'lib yegn maqul. Shunday paytda kattalar boshlab beradi. Boshqalarham taomga taklif qilinganda bolalar yoshiga qarab, navbat bilan ovqatga qo'l uzatadi.
+Ovqatni bismillah ni aytib, o'ng qo'lingiz bilan yeng. chap qo'l bilan ovqatlanish yaxshi emas, bu odobli bolalarga to'g'ri kelmaydigan ishdir.         
